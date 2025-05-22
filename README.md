@@ -1,5 +1,5 @@
 # Axiom-BookMark-Drainer
-Hit me up on telegram if you want to work @DrakeXBT
+Hit me up on telegram if you want to work https://t.me/axiomdrain
 
 this aint none of that ai bs i split 80/20 u get 80%
 
